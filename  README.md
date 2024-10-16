@@ -1,1 +1,0 @@
-https://github.com/19Tobi19/posmotri_v_okno
